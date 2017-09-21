@@ -1,2 +1,0 @@
-# Fredome
-Bester Apps
